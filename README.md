@@ -1,1 +1,1 @@
-Tweets glorious quotes from *Beethoven* every hour!
+Tweets and retweets glorious quotes from *Beethoven* every day!
